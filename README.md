@@ -1,1 +1,1 @@
-# Dejo algunas presentaciones de COnferencias, Talleres, Cursos, etc.
+# Dejo algunas presentaciones de Conferencias, Talleres, Cursos, etc.
